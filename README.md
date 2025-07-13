@@ -154,7 +154,7 @@ Proyek ini dilisensikan di bawah [MIT License](https://opensource.org/licenses/M
 Ingin update fitur terbaru, diskusi, atau berbagi teknik OSINT dan keyword grabber lainnya?
 
 ➡️ **Join Channel WhatsApp kami sekarang!**  
-📲 [https://whatsapp.com/channel/0029VaudLHc7YSd9S9c9800c](https://whatsapp.com/channel/0029VaudLHc7YSd9S9c9800c)
+📲 [𝐍𝐨𝐜𝐭𝐮𝐫𝐧𝐚𝐥𝐁𝐲𝐭𝐞𝐬](https://whatsapp.com/channel/0029VaudLHc7YSd9S9c9800c)
 
 ---
 
